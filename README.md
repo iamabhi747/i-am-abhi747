@@ -1,9 +1,8 @@
 #### **Abhinandan Bhuse**
 - 👑 I am The #Unique <br>
-- 🎨 #The_Artiest<br>
-- 💻 #The_Developer<br>
+- 🎨 #Artiest<br>
+- 💻 #Developer<br>
 - 🔍 #Researcher<br>
-- 👨‍🎓 #Ultimate_Student<br>
 - 🏫 #Navodayan -*JNV Solapur*-<br>
 --coming soon--> 🏫 #IITian -*IIT Powai*-<br>
 
